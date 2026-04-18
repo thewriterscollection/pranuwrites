@@ -20,10 +20,22 @@ I write stories that feel like late-night thoughts — soft, intense, and unforg
 ## 🚀 Currently Exploring
 - AI in storytelling  
 - Emotion-driven narratives  
-- Voice-based content  
+- Voice-based content
+
+## 💼 Work With Me
+I create:
+- SEO blogs that rank and retain
+- Social media content that hooks and converts
+- Brand storytelling that builds emotional connection
+✨ Open to freelance & full-time opportunities
+
+## 📊 Experience
+- Worked on creative storytelling projects
+- Built personal content portfolio with strong narrative focus
+- Exploring AI-driven storytelling and voice content
 
 ## 📬 Connect With Me
 - LinkedIn: https://www.linkedin.com/in/pranaya-ragha-sri-pappu-98621a396/
 
 ---
-*"Some stories are not written. They are felt."*
+*“If your brand needs words people don’t scroll past… we should talk.”*
